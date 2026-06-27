@@ -1,0 +1,1 @@
+# HubControleDeFigurinhasCopa2026
